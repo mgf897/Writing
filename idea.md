@@ -1,0 +1,1 @@
+He opens the door. There on the doormat lies a small open box with a card. As he picks up the card it reveals three strawberries, well one strawberry actually. Three versions of a specific strawberry, the past, present and future
