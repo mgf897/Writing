@@ -27,7 +27,26 @@ Shares are good and simple, some do very well.
 
 Realestate has a high cost of entry. While it can do well (and these are the stories we all tend to hear about), its easy to get something that underperforms. The property might not be in a growth area, it may be vacant more that expected, the maintenance and financing cost may be too high to actually see a good return.
 
-Businesses are where most of the world richest people have made their money.
+Businesses are where most of the world richest people have made their money. T
 
 
 Simplicity x Scalability x 
+
+
+Physical products
+- Higher barrier to entry (this is good if you have the skills)
+- Fulfilment cost
+- Potentially high margin
+
+Print on demand products
+- Standard products and customised products
+- 
+
+Digital products
+-software, ebooks, digital templates
+
+Productised services
+
+Commission based 
+- affiliate marketing
+
